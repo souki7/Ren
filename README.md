@@ -1,8 +1,17 @@
 # Ellis'
-HELLOOO, I'm ??
+hi. I'm skae/xia .mostly called "luck" as my main name/nickname in my close friends.1!
 
-DNI: proships,racists
+xxxxx
+- INTs- anyone! heavy c+h and ships, im fine with them!
 
-INT: anyone!
+⛔️! - DNIs.; proships,racists.homo/transphopic. Ableist.Se-ist.M-A-P.groomer.doxxer. 'Harasser/bully/trolls.' pedophile. zoophile 
 
-⛔ :please respect my energy,I can be very VERY social and cheerful at times but I have selective mutism and social anxiety problems,so I always overthink what I said,and it drains my energy.
+
+My idenities (be respectful 🙏)
+- Pronouns: any/all , gender fluid
+
+- se/uality; half aroace half panromantic 
+
+- MBTI: INFP.(fe)
+
+- enneagrams; type 4,type 7, type 2. 4w6 .

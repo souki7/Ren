@@ -2,7 +2,7 @@
 - 
 INT: anyone! any ship!
 -
-DNI: Dni if ur trans/homophonic, and disrespectful about people's identity/feelings.
+DNI: Dni if ur trans/homophobic, and disrespectful about people's identity/feelings.
 -
 
 Fandom im on: FNF,Seildirectory,Forsaken, Dandys world, smiling critters, 

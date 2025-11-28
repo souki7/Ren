@@ -1,4 +1,4 @@
-hi,if you're my friend,flowersan,anyone,I'm taking a break. I know this might sound stupid but
+hi,if you're my friend,jeff,anyone,I'm taking a break. I know this might sound stupid but
 - I have been exhausted and mentally unstable. my anxiety and stress feels life threatening. I love you all <3 but every time I say a word,I overthink it alot 
 example: "was my joke too much?" "did I take it too unseriosly?" or just a random feeling of anxiety,a single wrong word feels overwhelming 
 I care SO MUCH about my friends,more to the closer ones,so I often tend to express interest to them. but I can be really annoying, of my selfish,dramatic,sensitive  being. I'm so sorry when I talked about my anxiety and stress to you guys, and making you all have to deal with it and be my personal therapist,especially @flowersan02

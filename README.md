@@ -1,6 +1,6 @@
 hi,if you're my friend,flowersan,anyone,I'm taking a break. I know this might sound stupid but
 - I have been exhausted and mentally unstable. my anxiety and stress feels life threatening. I love you all <3 but every time I say a word,I overthink it alot 
 example: "was my joke too much?" "did I take it too unseriosly?" or just a random feeling of anxiety,a single wrong word feels overwhelming 
-I care SO MUCH about my friends,more to the closer ones,so I often tend to express interest to them. but I can be really annoying, of my selfish,dramatic,sensitive  being. I'm so sorry when I talked about my anxiety and stress to you guys, and making all have to deal with it and be my personal therapist,especially jeffrey
+I care SO MUCH about my friends,more to the closer ones,so I often tend to express interest to them. but I can be really annoying, of my selfish,dramatic,sensitive  being. I'm so sorry when I talked about my anxiety and stress to you guys, and making you all have to deal with it and be my personal therapist,especially jeffrey
 -. I have been focusing so much on others emotions(no,really) I take their stress,sadness,frustration and take it seriously, and blame myself for it, and also you didn't do anything wrong! I just feel the emotions and it sticks to me for like 5 days overthinking what mightve caused it. I know it might just because they're tired,but the feeling is so off
 yeah I know it's not that much of a serious thing but I really want to be alone, so my mental health can heal,love you guys ill be back someday!:D
